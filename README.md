@@ -1,1 +1,1 @@
-# games
+# Today's Game News
